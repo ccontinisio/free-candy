@@ -1,0 +1,1 @@
+Andre vælger dårligt andre vælger bedre.
